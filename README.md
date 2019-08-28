@@ -540,3 +540,124 @@
 ![翻面](https://pic3.zhimg.com/50/v2-71d78e7a1f6ef2bd01e14bbe8dd5e43c_hd.jpg)
 * 9..两面都熟透后取出，切成小块。
 ![成品](https://pic4.zhimg.com/80/v2-fed72d4acad6cfa08d2e7252d5e1c733_hd.jpg)
+
+- - - - -
+- - - - -
+- - - - -
+
+<font color=#0099ff size=3>转自知乎用户  蛙妈本蛙（爱美食爱生活爱自己的暴躁二胎妈）  ⭐️个人首页⭐️ [蛙妈本蛙](https://www.zhihu.com/people/xie-xiao-wa-25/activities)</font>
+## ⭐️椒盐杏鲍菇
+![成品](https://pic4.zhimg.com/80/v2-b46e65e729f24aad7a804995b4f5efbc_hd.jpg)
+### 材料
+* 杏鲍菇2个，鸡蛋3个，面粉，面包糠，椒盐，胡椒粉，辣椒粉，糖。
+### 步骤
+* 1.杏鲍菇2个洗干净把水擦干
+![洗干净杏鲍菇](https://pic1.zhimg.com/80/v2-689570cce246e195b1475ac4dffa137a_hd.jpg)
+* 2.切成滚刀式的小块
+![切滚刀快](https://pic3.zhimg.com/80/v2-0c265fb40d00c1098237c522d686277f_hd.jpg)
+* 3.调料粉比例 放心，辣椒粉基本上吃不出辣味但糖建议放在后面的蛋液里
+![调料比例](https://pic3.zhimg.com/80/v2-5d241902d3ad366ed35bf7804eb15ae6_hd.jpg)
+* 4.调料粉撒进杏鲍菇块里拌匀
+![调味](https://pic1.zhimg.com/80/v2-cb9a964252ae8f7e58bd8f7ad1a72ee0_hd.jpg)
+* 5.三个鸡蛋打成蛋液
+![鸡蛋打成液体](https://pic2.zhimg.com/80/v2-aa073a6db997a88e50263d1bea701724_hd.jpg)
+* 6.面粉一小碗（可以比这个还少点），面包糠一大碗（是图上的三倍），蛋液里放一勺糖拌匀
+![面粉和面包糠等](https://pic1.zhimg.com/80/v2-8fca8367e4724dd2579680dc421bde08_hd.jpg)
+* 7.杏鲍菇块——裹上薄薄一层面粉
+![杏鲍菇块裹粉](https://pic2.zhimg.com/80/v2-71b764b3c30000d832645d0e2b782b2f_hd.jpg)
+* 8.再裹上蛋液
+![杏鲍菇块裹液](https://pic3.zhimg.com/80/v2-59a75983405bf24b6379e40f1b12c91f_hd.jpg)
+* 9.再裹上面包糠
+![杏鲍菇块裹面包糠](https://pic1.zhimg.com/80/v2-9d9ebd3441afbd15bdfd8c65ffc85560_hd.jpg)
+* 10.干净锅里放半锅油，六成热 （拿根筷子插中间，筷子旁边开始冒小气泡即可）转中火，一个个把杏鲍菇们夹进去。
+![烧油](https://pic2.zhimg.com/80/v2-489f09ba9ae71e800d094ecfc10b7588_hd.jpg)
+* 11.炸制，用筷子稍微搅拌一下，大概炸七八分钟，看到杏鲍菇开始缩水变小，表面变成略深的金黄色即可
+![炸制](https://pic2.zhimg.com/80/v2-f0b2fbc29665a098ee429faf49e9ec4f_hd.jpg)
+* 12.捞出来用厨房用纸或者吸油纸控完油，装盘，挤番茄酱，撒一层椒盐，这个很关键
+![成品](https://pic1.zhimg.com/80/v2-a140421dda07a0636dc7d975b4502999_hd.jpg)
+![成品](https://pic3.zhimg.com/80/v2-494fdefa02b09f29b5c00d5a34ed2384_hd.jpg)
+
+- - - - -
+- - - - -
+- - - - -
+
+## ⭐️新奥尔良鸡翅
+![成品](https://pic3.zhimg.com/80/v2-4aeceeb5f5d783ed546e6c5a0486c7df_hd.jpg)
+### 材料
+ * 鸡翅12个，新奥尔良鸡翅粉（我选的微辣），黑胡椒粉，生抽，麻油，蜂蜜，白芝麻（自选）
+### 步骤
+* 1.鸡翅洗净吸干水分，每面划两刀
+![鸡翅处理](https://pic1.zhimg.com/80/v2-df51ccd3874b472f96c6d6ae863f6e89_hd.jpg)
+
+* 2.配料比例 新奥尔良烤翅粉：黑胡椒粉 3:1
+![配料比例](https://pic4.zhimg.com/80/v2-30fcb9d51dd8ee72eec1bdee95a9505d_hd.jpg)
+
+* 3.配料粉和配料汁都和鸡翅一起拌匀。
+![拌匀](https://pic2.zhimg.com/80/v2-03b958ca36d93bb1d194989905933228_hd.jpg)
+
+* 4.盖保鲜膜放冰箱冷藏，越久越好吃。
+![冷藏](https://pic2.zhimg.com/80/v2-37bee126433d6fa7d1134cbdb3cbd776_hd.jpg)
+
+* 5. 24小时后平底锅放薄薄一层油，鸡翅一个个摆好，全程小火。剩下的酱汁不要倒掉。
+![起锅烧油](https://pic3.zhimg.com/80/v2-ae1545c79e39ad110dfaed3faeb2996a_hd.jpg) 
+
+* 6.变色后翻面 盖锅盖焖一会儿 经常查看鸡翅状况，发现糊了就换地方或者翻面
+![翻面](https://pic1.zhimg.com/80/v2-ebf149b4c28ad18c70ee6de817e2cd01_hd.jpg)
+![翻面](https://pic2.zhimg.com/80/v2-1866a6fcf62c6e17143bd718c934c503_hd.jpg)
+
+* 7.最后把剩下的酱汁淋上去，再焖一会儿
+![完成](https://pic1.zhimg.com/80/v2-714abd68240a2d6efc960ac3d1d5af7e_hd.jpg)
+![完成](https://pic3.zhimg.com/80/v2-63ec208ac8fe24b18db2d3fca14f2a1c_hd.jpg)
+
+- - - - - -
+- - - - -
+- - - - -
+
+<font color=#0099ff size=3>转自知乎用户  无敌小海孩（美食、咖啡、威士忌、健身爱好者！）  ⭐️个人首页⭐️ [无敌小海孩](https://www.zhihu.com/people/wu-di-xiao-hai-hai/activities)</font>
+
+## ⭐️泰国菜——烤猪颈肉
+![成品](https://pic1.zhimg.com/80/v2-198f6efe82ef01d5b53a51c29efca302_hd.jpg)
+### 材料和步骤
+* 1.猪颈肉150g左右 根据自己的情况购买
+![图片](https://pic4.zhimg.com/80/v2-ce25b1fd59f415eabb95b6411ab9e060_hd.jpg)
+
+* 2.然后就是做一个腌料了，主要的有耗油、黄糖（蜂蜜也行）、鱼露（酱油替代也可以）、盐。把猪颈肉腌制1个小时即可，避免太咸。
+![图片](https://pic3.zhimg.com/80/v2-fd2b09af86b0f10f725a627db34ad4b1_hd.jpg)
+
+* 3.放在烤架上，由于不是炭火烤，火力和温度不高，容易烤干，建议还是先用锡纸全部盖住进行烤制，这样不容易散失水分。烤箱温度最高230度，烤先烤个半小时
+![图片](https://pic1.zhimg.com/80/v2-e5072fe67a5e054065caa625489acbc0_hd.jpg)
+![图片](https://pic4.zhimg.com/80/v2-821a7faf7396064715f6e9da71207d26_hd.jpg)
+![图片](https://pic4.zhimg.com/80/v2-9fea444d0f6d5468adba7ddb86754128_hd.jpg)
+
+* 4.半个小时后，就可以吧锡纸拿掉了，可以看到肉肉已经熟了。
+![图片](https://pic1.zhimg.com/80/v2-401df15686a00fa3b9ae862feecfb331_hd.jpg)
+
+* 5.然后用原来的腌料，将肉肉都刷一遍，保持水分哈，放入烤箱再烤20分钟。期间10分钟让肉肉翻一个身，然后再刷一遍腌料。
+![图片](https://pic2.zhimg.com/80/v2-658338aea664558c01a362930e212d07_hd.jpg)
+
+* 6.出炉，切成一片片的，酱料呢，我觉得麻烦，就直接用买的泰式甜辣椒了，如果有心的话，也可以自己做
+![图片](https://pic1.zhimg.com/80/v2-198f6efe82ef01d5b53a51c29efca302_hd.jpg)
+![图片](https://pic2.zhimg.com/80/v2-7da4270d001ec910a34f784f93ee8464_hd.jpg)
+
+- - - - -
+- - - - -
+- - - - -
+
+<font color=#0099ff size=3>转自知乎用户  做一只奶糖（满满的正能量）  ⭐️个人首页⭐️ [做一只奶糖](https://www.zhihu.com/people/com-33-82/activities)</font>
+## ⭐️烧麦
+![图片](https://pic3.zhimg.com/80/v2-39b86aa248ed723c52211349f66a1659_hd.jpg)
+### 材料和步骤
+* 1.准备一斤多点糯米、两三个香菇、一根胡萝卜、一点卤肉(要有肥有瘦的那种)
+* 2.先把糯米泡一两个小时，然后放到电饭煲里面蒸，蒸多久我也不知道，蒸到米八分熟就把它盛出来放碗里
+* 3.把胡萝卜剁碎，把香菇剁碎，把卤肉剁碎，把生姜剁碎
+* 4.起锅烧油，加生姜，然后加肉碎，再加香菇胡萝卜，然后加蒸好的糯米，饭后一起翻炒，加盐，加点耗油 加点酱油，重点要把米吵成一粒一粒的，差不多了就关火装盘
+* 5.用擀面杖把饺子皮边缘压薄，然后摊在手掌中，加刚刚我们炒的馅，然后手掌握住，右手就来弄那个褶子，
+* 6.最简单的一步，就是继续蒸了，我是放在电饭煲里面蒸的，蒸之前烧麦沾点油以防粘着了，
+![图片](https://pic1.zhimg.com/80/v2-b0b48626f544165821ece64c63ffcf96_hd.jpg)
+
+- - - - -
+- - - - -
+- - - - -
+
+<font color=#0099ff size=3>转自知乎用户  食间说（吃饭也得有仪式感）  ⭐️个人首页⭐️ [食间说](https://www.zhihu.com/people/shi-jian-shuo-65/activities)</font>
+## ⭐️杏鲍菇黑椒牛肉粒
